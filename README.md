@@ -72,10 +72,10 @@ We will take reasonable steps to destroy or de-identify personal information if 
 
 ### Updating Your Personal Information
 
-If you would like to update your personal information, please send us an e-mail at [givinghero@gmail.com](givinghero@gmail.com).
+If you would like to update your personal information, please send us an e-mail at [team.givinghero@gmail.com](givinghero@gmail.com).
 
 
 
 ### Questions about our Terms and Condition
 
-For questions or clarifications about our Terms and Condition, please e-mail us at [givinghero@gmail.com](givinghero@gmail.com).
+For questions or clarifications about our Terms and Condition, please e-mail us at [team.givinghero@gmail.com](givinghero@gmail.com).
